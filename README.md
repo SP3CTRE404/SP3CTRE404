@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SP3CTRE404.
+- 👀 I’m interested in game developement.
+- There is a game called The Last Of Us which mde me mesmerised with the process of making games.
+- 🌱 I’m currently learning programming in laguages including c++ & java.
+- I am a beginner in the coding world and hope to learn as much as possible.
+- 📫 Reach me at ua26112004@gmail.com.
